@@ -1,2 +1,0 @@
-# rjietaylor
-rjietaylor.com website
